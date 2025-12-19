@@ -1,4 +1,4 @@
-<div align="center">
+
 ![20250802_152817.jpg](https://github.com/user-attachments/assets/f1352ece-d45c-4fd2-b549-79a20aa99b27)
 
   **pfp credit: batsu-sebun (on tumblr)**
@@ -43,5 +43,4 @@ $\color{#f77fb6}{\text{Proshippers, Fruitcake fan}}$
 $\color{#7a93cc}{\text{Sorry this "info" is poorly done.}}$
 $\color{#7a93cc}{\text{I'm doing this at two in the morning.}}$
 $\color{#7a93cc}{\text{And I'm too lazy :/}}$
-
 </div>
