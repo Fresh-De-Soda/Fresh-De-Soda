@@ -1,6 +1,7 @@
 <div align="center">
 
 <![20250802_152817.jpg](https://github.com/user-attachments/assets/f1352ece-d45c-4fd2-b549-79a20aa99b27)
+art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼𝗻 𝘁𝘂𝗺𝗯𝗹𝗿)
 
 ## ✦ Heya! U can call me Fresh Soda
 **B-day: 06.03** 🫧
