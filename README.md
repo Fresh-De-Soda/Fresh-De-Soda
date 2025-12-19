@@ -3,12 +3,12 @@
 <![20250802_152817.jpg](https://github.com/user-attachments/assets/f1352ece-d45c-4fd2-b549-79a20aa99b27)
 
 ## ✦ Heya! U can call me Fresh Soda
-**B-day: 06.03** 🎈
+**B-day: 06.03** 🫧
 
 ---
 
-### 🌸 I love: 
-`rabbits` • `pink things` • `soda`
+### I love: 
+`soda`
 *(drink, not a nickname)*
 
 ---
