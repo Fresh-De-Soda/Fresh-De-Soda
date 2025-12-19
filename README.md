@@ -18,8 +18,3 @@
   $\color{#f77fb6}{\text{pedophiles, Adults (people over 18),}}$
   $\color{#f77fb6}{\text{Proshippers, Fruitcake fan}}$
 </div>
-
-$\color{#7a93cc}{\text{Sorry this "info" is poorly done.}}$
-$\color{#7a93cc}{\text{I'm doing this at two in the morning}}$
-
-$\color{#7a93cc}{\text{And I'm too lazy :/}}$
