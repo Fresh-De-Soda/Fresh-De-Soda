@@ -23,6 +23,6 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 
 ---
 
-*Sorry this "info" is poorly done. I'm doing this at two in the morning. And I'm too lazy :/*
+*Sorry this "info" is poorly done. I'm doing this at two in the morning. n im too lazy :/*
 
 </div>
