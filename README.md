@@ -1,20 +1,25 @@
-<div align="center">
-  <img src="20250802_152817.jpg" width="200">
+![20250802_152817.jpg](https://github.com/user-attachments/assets/f1352ece-d45c-4fd2-b549-79a20aa99b27)
+
+  **pfp credit: batsu-sebun (on tumblr)**
+
+  $\color{#feb0c0}{\text{✦ Heya! U can call me Fresh Soda}}$
+
+  $\color{#fe6695}{\text{✦ B-day: 06.03}}$
+
+  $\color{#7445b9}{\text{ ✦i love:𝗋𝖺𝖻𝖻𝗂𝗍𝗌, 𝗉𝗂𝗇𝗄 𝗍𝗁𝗂𝗇𝗀𝗌, 𝗌𝗈𝖽𝖺}}$
+  $\color{#7445b9}{\text{ (𝖽𝗋𝗂𝗇𝗄,𝗇𝗈𝗍 𝖺 𝗇𝗂𝖼𝗄𝗇𝖺𝗆𝖾) }}$
+
+  
+  $\color{#58b7d5}{\text{✦ DO NOT INTERACT}}$ 
+
+  $\color{#fab4c9}{\text{Basic DNI criteria:}}$
+  $\color{#a332ba}{\text{homophobes, racists, transphobes,}}$
+  
+  $\color{#f77fb6}{\text{pedophiles, Adults (people over 18),}}$
+  $\color{#f77fb6}{\text{Proshippers, Fruitcake fan}}$
 </div>
 
+$\color{#7a93cc}{\text{Sorry this "info" is poorly done.}}$
+$\color{#7a93cc}{\text{I'm doing this at two in the morning}}$
 
-
-<!--
-**Fresh-De-Soda/Fresh-De-Soda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+$\color{#7a93cc}{\text{And I'm too lazy :/}}$
