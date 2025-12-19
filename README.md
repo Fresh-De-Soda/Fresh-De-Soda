@@ -2,6 +2,7 @@
   <img src="20250802_152817.jpg" width="200">
 </div>
 
+
 <!--
 **Fresh-De-Soda/Fresh-De-Soda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
