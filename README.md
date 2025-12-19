@@ -19,23 +19,3 @@
   $\color{#f77fb6}{text{Proshippers, Fruitcake fan}}$
 </div>
 
-![](https://github.com/user-attachments/assets/f1352ece-d45c-4fd2-b547-b5479a20aa99b27)
-
-
-
-$\color{#feb0c0}{\text{✦ Heya! U can call me Fresh Soda}}$
-
-$\color{#fe6695}{\text{✦ B-day: 06.03}}$
-
-$\color{#7445b9}{\text{✦ i love: rabbits, pink things, soda}}$
-
-$\color{#58b7d5}{\text{✦ DO NOT INTERACT}}$
-
-$\color{#fab4c9}{\text{Basic DNI criteria:}}$
-
-$\color{#a332ba}{\text{homophobes, racists, transphobes, pedophiles}}$
-
-$\color{#f77fb6}{\text{Adults (people over 18), Proshippers, Fruitcake fan}}$
-
-</div>
-
