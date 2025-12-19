@@ -17,7 +17,8 @@
 > ### ❗ DO NOT INTERACT
 > **Basic DNI criteria:**
 > homophobes, racists, transphobes, pedophiles, 
-> Adults (people over 18), Proshippers, Fruitcake fan
+ 
+>Adults (people over 18), Proshippers, Fruitcake fan
 
 ---
 
