@@ -14,7 +14,7 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 
 ---
 
-> [!eeehhh]
+> [∠( ᐛ 」∠)_]
 > ### DO NOT INTERACT
 > **Basic DNI criteria:**
 > homophobes, racists, transphobes, pedophiles, 
