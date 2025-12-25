@@ -25,6 +25,6 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 
 *Sorry this "info" is poorly done. I'm doing this at 2 pm . n im too lazy :/*
 
-![20251109_225644.jpg](https://github.com/user-attachments/assets/3df59cbf-283b-43ed-8413-e9f68d5fb270)
+<![20251109_225644.jpg](https://github.com/user-attachments/assets/3df59cbf-283b-43ed-8413-e9f68d5fb270)
 *а ещё зацените что у мя есть*
 </div>
