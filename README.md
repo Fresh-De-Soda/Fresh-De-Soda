@@ -11,7 +11,6 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 ### I love: 
 `soda`
 *(drink. not a nickname)*
-` sharks `
 
 > ∠( ᐛ 」∠)_
 > ### DO NOT INTERACT
