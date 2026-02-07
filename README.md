@@ -12,7 +12,7 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 `soda`
 *(drink. not a nickname)*
 
-> ∠( ᐛ 」∠)_]
+> ∠( ᐛ 」∠)_
 > ### DO NOT INTERACT
 > **Basic DNI criteria:**
 > homophobes, racists, transphobes, pedophiles, 
@@ -21,4 +21,8 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 
 ---
 
-*Sorry this "info" is poorly done. I'm doing this at 2 pm . n im too lazy 
+
+
+ну и да.. 
+у меня фобия людей 
+идите нахуй 1!1!1
