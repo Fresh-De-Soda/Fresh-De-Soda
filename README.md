@@ -24,6 +24,7 @@ art 𝗰𝗿𝗲𝗱𝗶𝘁: 𝗯𝗮𝘁𝘀𝘂-𝘀𝗲𝗯𝘂𝗻 (𝗼�
 <div align="center">
 
 ![12943070_d4047.gif](https://github.com/user-attachments/assets/cbb2032c-7d82-4316-b790-d5c257c58e80)
+
 GIF made by me, btw
 ### that's all. 
 `Thanks for reading!`
