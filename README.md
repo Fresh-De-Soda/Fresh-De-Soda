@@ -1,1 +1,2 @@
-![Cookie0049-jump2_back.webp](https://github.com/user-attachments/assets/2efa9b37-0476-4798-a2e2-031a779ce6d3)
+yeah sure whatever 
+![Без названия49_20260127232930.jpg](https://github.com/user-attachments/assets/c4ec6924-f2b9-468d-928c-ca8308ae2bc4)
